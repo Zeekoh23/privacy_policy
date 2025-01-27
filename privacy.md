@@ -148,7 +148,7 @@ We may update this privacy notice from time to time. The updated version will be
 
 12. HOW CAN YOU CONTACT US ABOUT THIS NOTICE?     
 
-If you have questions or comments about this notice, you may email us at alex@educare.ng or by post to:
+If you have questions or comments about this notice, you may email us at revivalarmy98@gmail.com or by post to:
 
 CEO
 RBNS
