@@ -57,7 +57,7 @@ We use personal information collected via our App for a variety of business purp
 
 We use the information we collect or receive:
 To facilitate account creation and logon process. If you choose to link your account with us to a third-party account (such as your Google or Facebook account), we use the information you allowed us to collect from those third parties to facilitate account creation and logon process for the performance of the contract. See the section below headed "HOW DO WE HANDLE YOUR SOCIAL LOGINS" for further information.
-To post testimonials. We post testimonials on our App that may contain personal information. Prior to posting a testimonial, we will obtain your consent to use your name and the content of the testimonial. If you wish to update, or delete your testimonial, please contact us at alex@educare.ng and be sure to include your name, testimonial location, and contact information.
+To post testimonials. We post testimonials on our App that may contain personal information. Prior to posting a testimonial, we will obtain your consent to use your name and the content of the testimonial. If you wish to update, or delete your testimonial, please contact us at revivalarmy98@gmail.com and be sure to include your name, testimonial location, and contact information.
 Request feedback. We may use your information to request feedback and to contact you about your use of our App.
 To enable user-to-user communications. We may use your information in order to enable user-to-user communications with each user's consent.
 To manage user accounts. We may use your information for the purposes of managing our account and keeping it in working order.
@@ -117,7 +117,7 @@ If you are a resident in the European Economic Area and you believe we are unlaw
 
 If you are a resident in Switzerland, the contact details for the data protection authorities are available here: https://www.edoeb.admin.ch/edoeb/en/home.html.
 
-If you have questions or comments about your privacy rights, you may email us at alex@educare.ng.
+If you have questions or comments about your privacy rights, you may email us at revivalarmy98@gmail.com.
 
 Account Information
 
@@ -151,7 +151,7 @@ We may update this privacy notice from time to time. The updated version will be
 If you have questions or comments about this notice, you may email us at alex@educare.ng or by post to:
 
 CEO
-APWEN FARM
+RBNS
 
 13. HOW CAN YOU REVIEW, UPDATE, OR DELETE THE DATA WE COLLECT FROM YOU?     
 
